@@ -5,4 +5,4 @@ In this video, I share a little about myself, my interests, and my journey so fa
 
 Click on the link to watch my introduction video:
 
-[Watch Now: self introduction video of Zena pertin (23BOE10077)](https://drive.google.com/file/d/1Suy5A-MfUmrCQ1KUwcpyjoXb4hjYWAVf/view?usp=sharing)
+[Watch Now: Self introduction video of Zena pertin (23BOE10077)](https://drive.google.com/file/d/1Suy5A-MfUmrCQ1KUwcpyjoXb4hjYWAVf/view?usp=sharing)
